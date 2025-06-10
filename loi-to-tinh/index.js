@@ -108,7 +108,7 @@ Trong lòng tôi vẫn chưa chắc chắn về tình cảm của Từ Phàm, nh
 
 Bỗng nhiên, tôi nhớ ra nhóm vẫn còn thiếu một người nên vội hỏi: “Viện Viện, bọn mình vẫn còn thiếu một người nữa đúng không? Đã có ai chưa?”
 
-Từ Viện Viện gật đầu: “Đủ rồi. Tiểu Bạch nói anh họ cậu ấy cũng muốn đi, vậy là vừa tròn sáu người.” (Thỏ Audio cướp bản dịch nhà Gấu)
+Từ Viện Viện gật đầu: “Đủ rồi. Tiểu Bạch nói anh họ cậu ấy cũng muốn đi, vậy là vừa tròn sáu người.” 
 
 Đến công viên, tôi mới ngớ người ra. Hóa ra anh họ của Tiểu Bạch lại chính là… Trì Yến.
 
@@ -144,7 +144,7 @@ Tại quầy trò chơi, ba nam sinh mỗi người cầm một khẩu súng đ�
 
 Tiểu Bạch bắn một băng đạn mà trúng chẳng được bao nhiêu. Điều này cũng không có gì bất ngờ, dù sao trước đó khi chơi game bắn súng, cậu ta nổi tiếng là “bậc thầy vẽ viền”, bắn trượt cả bot.
 
-Từ Phàm bắn chuẩn hơn một chút, cũng trúng không ít, nhưng chỉ chơi một lúc rồi dừng lại, chủ động chạy đi mua kem cho mọi người. (Thỏ Audio cướp bản dịch nhà Gấu)
+Từ Phàm bắn chuẩn hơn một chút, cũng trúng không ít, nhưng chỉ chơi một lúc rồi dừng lại, chủ động chạy đi mua kem cho mọi người. 
 
 Chỉ còn lại Trì Yến vẫn tiếp tục chơi.
 
@@ -154,7 +154,7 @@ Cậu ấy bắn rất chậm, nhưng phát nào trúng phát đó.
 
 Tiếng súng đồ chơi vang lên đều đặn, tôi nhìn bóng lưng của cậu ấy, bỗng nhiên hơi ngẩn người.
 
-Cái đầu này… tròn ghê. (Thỏ Audio cướp bản dịch nhà Gấu)
+Cái đầu này… tròn ghê. 
 
 Khi Trì Yến bắn hết cả dãy bóng, ông chủ quầy cười tươi nói cậu ấy được giải nhất, có thể chọn một con thú bông to nhất.
 
@@ -170,7 +170,7 @@ Thế nhưng, qua khóe mắt, tôi thấy Trì Yến khẽ lắc đầu với c
 
 Tám giờ tối, loạt pháo hoa đầu tiên nổ tung trên bầu trời, ánh sáng rực rỡ như một dải ngân hà rơi xuống màn đêm thăm thẳm. Những sắc màu lấp lánh của pháo hoa phản chiếu vào đôi mắt tôi, hòa quyện giữa bóng tối và ánh bạc lấp lánh.
 
-Tôi ngẩng đầu, ngây người nhìn lên bầu trời, đầu óc trống rỗng, không biết nên nghĩ gì. (Thỏ Audio cướp bản dịch nhà Gấu)
+Tôi ngẩng đầu, ngây người nhìn lên bầu trời, đầu óc trống rỗng, không biết nên nghĩ gì. 
 
 Từ Viện Viện bỗng vỗ nhẹ vào tôi: “Đi thôi, xếp hàng lên vòng quay mặt trời nào.”
 
@@ -184,7 +184,7 @@ Tôi không phản cảm với Từ Phàm, thậm chí còn có chút thiện c�
 
 Chờ một lúc, cuối cùng cũng đến lượt chúng tôi. Tôi bước vào cabin trước, Từ Phàm đang chuẩn bị bước vào theo thì phía sau bỗng vang lên giọng nói của Trì Yến:
 
-“Từ Phàm, túi đeo của cậu đâu?” (Thỏ Audio cướp bản dịch nhà Gấu)
+“Từ Phàm, túi đeo của cậu đâu?” 
 
 Khi đến đây, Từ Phàm có mang theo một chiếc túi đeo chéo, nhưng bây giờ trên người cậu ấy lại trống trơn.
 
@@ -204,7 +204,7 @@ Bên ngoài, tiếng pháo hoa vẫn nổ vang rền. Trong cabin, tôi và Trì
 
 Trì Yến cũng xoay đầu, nhìn ra cửa sổ phía bên kia.
 
-Vòng quay chầm chậm lên đến đỉnh cao nhất. Đúng lúc đó, một bản nhạc nền Giáng Sinh vang lên. (Thỏ Audio cướp bản dịch nhà Gấu)
+Vòng quay chầm chậm lên đến đỉnh cao nhất. Đúng lúc đó, một bản nhạc nền Giáng Sinh vang lên. 
 
 Tôi không nhịn được mà bật cười. Cũng không rõ tại sao, chỉ cảm thấy khung cảnh này quá đỗi kỳ quặc. Một khoảnh khắc tĩnh lặng trên cao, một bầu không khí đầy bối rối, rồi lại thêm bản nhạc Giáng Sinh không hợp thời điểm này… tất cả tạo thành một cảnh tượng vừa buồn cười vừa khó hiểu.
 
@@ -212,7 +212,7 @@ Nghe tiếng cười của tôi, Trì Yến quay lại nhìn. Cậu ta vẫn gi�
 
 Thoáng chốc, tôi dường như nghe thấy một tiếng cười khẽ vang lên trong cabin.
 
-Vòng quay chầm chậm xoay tròn, hơn mười phút trôi qua mà tôi và Trì Yến vẫn không nói với nhau câu nào. Nhưng khi bước ra ngoài, tôi nhận ra tâm trạng của cậu ta hình như đã tốt hơn rất nhiều. (Thỏ Audio cướp bản dịch nhà Gấu)
+Vòng quay chầm chậm xoay tròn, hơn mười phút trôi qua mà tôi và Trì Yến vẫn không nói với nhau câu nào. Nhưng khi bước ra ngoài, tôi nhận ra tâm trạng của cậu ta hình như đã tốt hơn rất nhiều. 
 
 Từ Phàm lấy lại được túi, nhưng cả đoạn đường sau đó, cậu ấy cứ liên tục than thở vì tôi không đợi cậu ấy để cùng lên vòng quay.
 
@@ -226,7 +226,7 @@ Cậu ấy nói vậy, tôi cũng không tiện hỏi thêm. Nhưng trong lòng 
 
 Sáng hôm sau, trong giờ thể dục, tôi vô tình bị trật chân. Khi đó, tôi đang được Từ Viện Viện dìu đi thì tình cờ gặp Từ Phàm. Nhìn thấy tôi khập khiễng, cậu ấy lập tức đề nghị đưa tôi về nhà.
 
-Tối tan học, tôi thu dọn cặp sách, chuẩn bị chờ Từ Phàm đến tìm mình. (Thỏ Audio cướp bản dịch nhà Gấu)
+Tối tan học, tôi thu dọn cặp sách, chuẩn bị chờ Từ Phàm đến tìm mình. 
 
 Nhưng ngay lúc đó, Trì Yến bất ngờ lấy ra một xấp bài kiểm tra dày cộp, đặt trước mặt tôi.
 
@@ -238,7 +238,7 @@ Tôi trố mắt nhìn cậu ta: “Làm gì đấy?”
 
 “Cũng được thôi.” Trì Yến thản nhiên đáp. “Tôi sẽ tự chấm hết, sau đó… tiện tay nộp bài kiểm tra điểm 59 của cậu lên bàn giáo viên trước khi sáng mai đến lớp.”
 
-Tôi lập tức đặt cặp xuống, giật lấy tập bài từ tay cậu ta. Tôi cẩn thận so sánh từng câu với đáp án bên cạnh, sợ rằng cậu ta sẽ chơi khăm tôi. (Thỏ Audio cướp bản dịch nhà Gấu)
+Tôi lập tức đặt cặp xuống, giật lấy tập bài từ tay cậu ta. Tôi cẩn thận so sánh từng câu với đáp án bên cạnh, sợ rằng cậu ta sẽ chơi khăm tôi. 
 
 Càng chấm, tôi càng nhíu mày. Tôi chỉ vào một chỗ, nói với Trì Yến: “Cái này cậu thiếu một điểm.”
 
@@ -264,7 +264,7 @@ Trước giờ, hai chúng tôi luôn phân công rõ ràng: Trì Yến chấm b
 
 Bình thường, Trì Yến chấm bài rất nhanh, tôi còn chưa được một nửa, cậu ấy đã xong xuôi rồi. Nhưng hôm nay, cậu ấy lại chấm chậm đến lạ thường, mỗi câu đều nhìn thật lâu.
 
-Tôi không muốn để Từ Phàm đợi quá lâu, nên sốt ruột giục: “Nhanh lên chút được không?” (Thỏ Audio cướp bản dịch nhà Gấu)
+Tôi không muốn để Từ Phàm đợi quá lâu, nên sốt ruột giục: “Nhanh lên chút được không?” 
 
 Thế nhưng, Trì Yến vẫn ung dung xem xét từng bài, hơn nửa tiếng trôi qua mà vẫn chưa xong một nửa. Tôi bắt đầu mất kiên nhẫn.
 
@@ -292,7 +292,7 @@ Tôi nhìn họ, trong lòng bỗng có dự cảm không lành.
 
 Cô gái không trả lời, chỉ thẳng vào tôi, lạnh lùng hỏi: “Là cô ta sao? Người nhắn tin với cậu mỗi ngày chính là cô ta?”
 
-Tôi bị trật chân nên không thể đứng dậy, chỉ có thể ngồi tại chỗ ngước nhìn bọn họ. Tư thế này khiến tôi cảm thấy vô cùng khó chịu, giống như một phạm nhân bị xét xử vậy. (Thỏ Audio cướp bản dịch nhà Gấu)
+Tôi bị trật chân nên không thể đứng dậy, chỉ có thể ngồi tại chỗ ngước nhìn bọn họ. Tư thế này khiến tôi cảm thấy vô cùng khó chịu, giống như một phạm nhân bị xét xử vậy. 
 
 Từ Phàm có vẻ mất kiên nhẫn: “Đừng làm ầm lên ở đây.”
 
@@ -308,7 +308,7 @@ Cô ta hừ lạnh: “Không chung thủy? Rõ ràng là cô ta chủ động b
 
 Tôi quay sang nhìn Từ Phàm. Cậu ta trông có vẻ khó xử, kéo tay cô ta ra nhưng không hề mở miệng giải thích lấy một lời.
 
-Không cần nói gì nữa, tôi đã hiểu tất cả. (Thỏ Audio cướp bản dịch nhà Gấu)
+Không cần nói gì nữa, tôi đã hiểu tất cả. 
 
 Bỗng nhiên, tôi bật cười. Tôi nhìn lướt qua hai người trước mặt: “Mải chấm bài, quên chưa ‘chấm’ hai người các cậu rồi. Cậu nghĩ mình là Bao Văn Tịnh à? Ai cũng mê bạn trai cậu chắc? Tôi đâu phải người thu mua phế liệu, rác rưởi nào cũng nhận.”
 
@@ -320,7 +320,7 @@ Từ Phàm liếc nhìn tôi, khẽ nói một câu: “Xin lỗi.” Sau đó k
 
 Tôi cúi đầu nhìn tờ bài kiểm tra trước mặt, hốc mắt nóng lên. Không kiềm chế được, nước mắt cứ thế rơi xuống.
 
-Lần này tôi không khóc vì thích Từ Phàm. Điều làm tôi đau lòng chính là cảm giác bị lừa dối, bị đùa giỡn, bị sỉ nhục. Và còn là sự tức giận với chính bản thân mình. (Thỏ Audio cướp bản dịch nhà Gấu)
+Lần này tôi không khóc vì thích Từ Phàm. Điều làm tôi đau lòng chính là cảm giác bị lừa dối, bị đùa giỡn, bị sỉ nhục. Và còn là sự tức giận với chính bản thân mình. 
 
 Chúng tôi đã từng nhắn tin với nhau đến tận khuya, cùng nhau nói về mọi chuyện trên trời dưới đất. Cậu ta có vô số hành động vượt quá ranh giới bạn bè, mỗi lần bị trêu chọc cũng không phủ nhận, thậm chí còn cố tình khiến tôi hiểu lầm hơn nữa.
 
@@ -336,7 +336,7 @@ Cậu ấy quăng cho tôi một cây bút: “Khóc xong rồi thì tính đi�
 
 Tôi cầm một bài kiểm tra lên tính điểm. Đến bài cuối cùng, tôi phát hiện đó là bài của mình.
 
-Tôi nhìn kỹ lại, điểm số đã thành 61. (Thỏ Audio cướp bản dịch nhà Gấu)
+Tôi nhìn kỹ lại, điểm số đã thành 61. 
 
 Trì Yến đã lặng lẽ cộng thêm hai điểm vào câu hỏi phụ.
 
@@ -350,7 +350,7 @@ Tôi lết ra khỏi thang máy, chậm chạp đi về phía cổng trường t
 
 “Lên đi, tôi chở cậu.”
 
-“Xe này từ đâu ra?” Tôi ngơ ngác nhìn chiếc xe. Tôi nhớ rõ ngày nào cậu ấy cũng đạp xe đạp leo núi đến trường, lúc nào cũng ngầu như đại ca. (Thỏ Audio cướp bản dịch nhà Gấu)
+“Xe này từ đâu ra?” Tôi ngơ ngác nhìn chiếc xe. Tôi nhớ rõ ngày nào cậu ấy cũng đạp xe đạp leo núi đến trường, lúc nào cũng ngầu như đại ca. 
 
 “Tiểu Bạch đi thi đua xe địa hình, mượn xe của tôi rồi. Đây là xe điện của cậu ta.” Vừa nói, cậu ấy vừa trèo lên xe, tiện tay ném cho tôi một chiếc mũ bảo hiểm.
 
@@ -370,7 +370,7 @@ Nhà tôi ở một khu chung cư cũ, không có thang máy. Tôi đứng trư�
 
 Trong lúc tôi còn đang suy nghĩ, Trì Yến đã dừng xe, bước xuống đứng trước mặt tôi, hơi cúi người, quay đầu lại nói:
 
-“Tôi cõng cậu.” (Thỏ Audio cướp bản dịch nhà Gấu)
+“Tôi cõng cậu.” 
 
 Thế là, Trì Yến cõng tôi, từng bước một leo lên năm tầng lầu.
 
@@ -388,7 +388,7 @@ Cậu ấy bỗng dừng lại, giọng nói nhỏ hơn, nhưng giữa không gi
 
 “Trong mắt một số người, cậu là người đáng để họ thật lòng.”
 
-Tôi không biết Trì Yến đã đặt tôi xuống từ khi nào. Cậu ấy vẫn đứng thẳng, lặng lẽ nhìn tôi, còn tôi thì không dám ngước lên. (Thỏ Audio cướp bản dịch nhà Gấu)
+Tôi không biết Trì Yến đã đặt tôi xuống từ khi nào. Cậu ấy vẫn đứng thẳng, lặng lẽ nhìn tôi, còn tôi thì không dám ngước lên. 
 
 Tôi có chút may mắn khi cậu ấy không còn cõng tôi nữa, vì tim tôi đang đập mạnh đến mức tưởng như sắp nhảy ra khỏi lồng ngực.
 
@@ -402,7 +402,7 @@ Trì Yến nghiêng đầu, lấy thứ gì đó từ túi ra rồi đặt vào 
 
 Tôi cúi đầu nhìn. Một thỏi son dưỡng có mùi cam (tên của nữ9 là quả cam á), màu cam nhạt nằm gọn trong lòng bàn tay tôi.
 
-Sau hôm đó, tôi chẳng còn muốn nhìn mặt Từ Phàm nữa, dù chỉ là một ánh mắt. (Thỏ Audio cướp bản dịch nhà Gấu)
+Sau hôm đó, tôi chẳng còn muốn nhìn mặt Từ Phàm nữa, dù chỉ là một ánh mắt. 
 
 Cậu ta có vài lần định tìm tôi nói gì đó, nhưng câu “Tớ xem cậu như bạn tốt” bị Từ Viện Viện chặn họng bằng một giọng điệu mỉa mai, khiến cậu ta không nói nổi câu nào nữa.
 
@@ -410,7 +410,7 @@ Từ Viện Viện còn kéo Tiểu Bạch ra mắng một trận, trách cậu 
 
 Tôi thậm chí còn hy vọng trời xanh giáng một tia sét xuống, quét sạch những kẻ giả tạo như Từ Phàm. Nhưng rõ ràng, đời không phải phim truyền hình, kẻ xấu chẳng bao giờ nhận ngay báo ứng.
 
-Sau khi tuyệt giao với nhóm tôi, Từ Phàm chỉ im lặng được hai ngày, rồi đột nhiên thân thiết với một nữ sinh lớp khác. So với tôi trước kia, cậu ta còn ân cần gấp bội. Tôi và Từ Viện Viện chỉ có thể cười khẩy. (Thỏ Audio cướp bản dịch nhà Gấu)
+Sau khi tuyệt giao với nhóm tôi, Từ Phàm chỉ im lặng được hai ngày, rồi đột nhiên thân thiết với một nữ sinh lớp khác. So với tôi trước kia, cậu ta còn ân cần gấp bội. Tôi và Từ Viện Viện chỉ có thể cười khẩy. 
 
 Mối quan hệ giữa tôi và Trì Yến lại quay về như cũ, giống như đêm hôm đó ở cầu thang chỉ là một giấc mơ.
 
@@ -430,7 +430,7 @@ Hôm có kết quả, tôi lập tức gửi cho Trì Yến một bức ảnh ch
 
 Mùa hè sau kỳ thi đại học, cả nhóm tụ tập ở KTV để ăn mừng.
 
-Tôi uống hơi nhiều, lẻn ra ngoài đi vệ sinh, tình cờ nghe được cuộc trò chuyện của Trì Yến và bạn cậu ấy. (Thỏ Audio cướp bản dịch nhà Gấu)
+Tôi uống hơi nhiều, lẻn ra ngoài đi vệ sinh, tình cờ nghe được cuộc trò chuyện của Trì Yến và bạn cậu ấy. 
 
 Một nam sinh hỏi: “Bao giờ cậu định tỏ tình với Hứa Tranh đây?”
 
@@ -442,7 +442,7 @@ Nam sinh kia thở dài: “Rồi rồi, cậu cứ cứng miệng đi. Trời c
 
 Cậu ấy cười khẽ rồi nói tiếp: “Hồi đó vì muốn đưa Hứa Tranh về nhà, cậu còn cả gan cạy khóa xe điện mới mua của thầy giám thị. Cuối cùng bị ông ấy bắt phạt quét dọn nhà xe cả tháng trời, ai mà không biết chứ?”
 
-Nghe đến đây, tôi không nhịn được bật cười. (Thỏ Audio cướp bản dịch nhà Gấu)
+Nghe đến đây, tôi không nhịn được bật cười. 
 
 Tiếng cười khiến hai người kia giật mình.
 
@@ -452,7 +452,391 @@ Tôi nhướng mày nhìn Trì Yến: “Nghe nói, cậu thích tôi?”
 
 Trì Yến quay đi, mặt không cảm xúc: “Ai nói tôi thích?”
 
-Tôi cười khẩy: “Đừng cứng miệng nữa.”`
+Tôi cười khẩy: “Đừng cứng miệng nữa.”
+
+“Sau này, chúng tôi lại đi vòng quay mặt trời một lần nữa.
+
+Lần này, cô ấy còn đáng yêu hơn cả hình ảnh phản chiếu trên ô kính ngày hôm đó.”
+
+Bạn cùng bàn của tôi, Hứa Tranh, là một cô ngốc.
+
+Nhưng thực ra, cô ấy cũng không quá ngốc.
+
+Ngày đầu tiên nhập học năm lớp 10, tôi đến muộn, cô ấy đến còn muộn hơn.
+
+Thế là chúng tôi trở thành bạn cùng bàn ở dãy cuối lớp.
+
+Hứa Tranh có rất nhiều bạn bè, cả trong lớp lẫn ngoài lớp. Đi đến đâu cũng có người chào hỏi cô ấy.
+
+Còn tôi, tôi không biết mình có được tính là bạn của cô ấy không.
+
+Thầy dạy Vật lý là chồng của dì cô ấy. Hứa Tranh học Vật lý rất tệ, nhưng Vật lý lại là môn bắt buộc.
+
+Sau kỳ thi tháng, tôi ở văn phòng giúp giáo viên chủ nhiệm nhập điểm. 
+
+Thầy dạy Vật lý cầm bài kiểm tra của Hứa Tranh, than thở:
+
+“Cháu gái tôi lần này lại không qua nổi điểm trung bình. Vợ tôi mà biết, chắc tôi chết mất!”
+
+Giáo viên chủ nhiệm cười nhạt, nhấp một ngụm trà rồi nói:
+
+“Tìm cho con bé một người giảng bài đi, có khi học sinh dạy nhau lại dễ hiểu hơn.”
+
+Thầy Vật lý nghe xong gật gù, bắt đầu lật danh sách điểm.
+
+Tôi nhìn giáo viên chủ nhiệm, nhàn nhạt nói:
+
+“Thầy ơi, phím Enter của máy bị hỏng rồi.”
+
+Thầy chủ nhiệm chẳng buồn ngẩng đầu: “Ừ, hỏng lâu rồi. Em chịu khó dùng chuột mà nhập nhé.”
+
+Tôi đáp một tiếng, tiếp tục nhập đến người thứ hai mươi.
+
+Thầy Vật lý đột nhiên nhìn tôi:
+
+“Trì Yến, em đứng đầu môn Vật lý kỳ này đúng không? Em có thể giúp thầy…”
+
+Thế là, sau khi đổi chỗ ngồi, tôi lại trở thành bạn cùng bàn với Hứa Tranh. 
+
+Cô ấy thích chạy sang chỗ Từ Viện Viện trò chuyện vào giờ giải lao.
+
+Từ Viện Viện ngồi ngay bên cạnh tôi, đôi khi tôi cũng vô thức nghe thấy họ nói gì.
+
+Có lần, tôi nghe cô ấy nói muốn đi công viên giải trí, hình như còn thiếu vài người.
+
+Họ nhắc đến Tiểu Bạch, nhắc đến em họ, rồi nhắc đến một người tên Từ Phàm.
+
+Từ Viện Viện nói, cậu ta thích Hứa Tranh.
+
+Và cô ấy còn muốn rủ cậu ta đi công viên.
+
+Hứa Tranh không rủ tôi.
+
+Đột nhiên, tôi cảm thấy bực bội. Có lẽ là do bên ngoài quá ồn ào.
+
+Thôi, gọi cô ấy về giảng bài vậy. Cô ấy sẽ đóng cửa sổ lại.
+
+Hứa Tranh quay về, đóng cửa sổ.
+
+Cô ấy có vẻ không vui, tôi cũng chẳng vui. 
+
+Tôi giảng bài cho cô ấy.
+
+Cô ấy nghe hiểu, rồi lại vui vẻ.
+
+Cô ấy hí hửng mở sách bài tập, tìm một câu tương tự để làm.
+
+Tôi định nói với cô ấy rằng bài này không giống bài vừa rồi, nhưng nhìn thấy vẻ háo hức của cô ấy, tôi lại không muốn ngắt ngang.
+
+Cô ngốc này… Hình vẽ giống nhau, không có nghĩa là đề bài cũng giống nhau đâu.
+
+Thôi kệ, làm sai rồi cô ấy sẽ tự hỏi tôi thôi.
+
+Như tôi đoán, cô ấy tính sai, ngoài dấu thập phân ra thì chẳng có số nào đúng.
+
+Nhưng đến khi tan học, cô ấy vẫn không hỏi tôi.
+
+Tôi đi tìm Tiểu Bạch. Tiểu Bạch là em họ xa của tôi. 
+
+Sau đó, tôi quyết định cùng cậu ta đi công viên giải trí.
+
+Hôm đó, Hứa Tranh rất xinh đẹp.
+
+Nhưng tôi biết, là vì Từ Phàm sẽ đến.
+
+Thật kỳ lạ, mỗi khi đối diện với Hứa Tranh, tôi lại thấy gò bó.
+
+Sau này Tiểu Bạch chỉnh tôi: “Không phải anh gò bó, mà là anh giữ kẽ quá.”
+
+Thôi được rồi, tôi thừa nhận, tôi diễn hơi lố thật. 
+
+Rồi Từ Phàm đến.
+
+Vừa gặp, cậu ta đã nhìn chằm chằm Hứa Tranh, khen cô ấy xinh đẹp.
+
+Đây là lần đầu tiên tôi gặp Từ Phàm.
+
+Ấn tượng đầu tiên: Trông rất tùy tiện.
+
+Ấn tượng thứ hai: Lùn.
+
+Ấn tượng thứ ba: Như một con chó nhỏ vẫy đuôi.
+
+À, tôi còn xem qua bảng điểm của cậu ta nữa. Chỉ số thông minh cũng bình thường.
+
+Tôi nhìn Từ Phàm – Cái kiểu người gì thế này?
+
+Tôi lại nhìn Hứa Tranh – Cái gu gì thế này? 
+
+Hôm đó, chúng tôi chơi ném bóng trúng thưởng.
+
+Tôi bực bội trong lòng, nên bắn rất chuẩn.
+
+Chủ quầy bảo tôi chọn phần thưởng.
+
+Tôi vô thức quay lại nhìn Hứa Tranh.
+
+Cô ấy lại quay đi.
+
+Tôi vốn định chọn một con thú bông tặng cô ấy, nhưng bỗng chốc mất hết dũng khí.
+
+Cuối cùng, tôi chọn một thỏi son dưỡng hương cam.
+
+Lúc Từ Phàm đi mua kem, tôi đã thấy cậu ta làm mất túi. Nhưng tôi không nói.
+
+Vì khi đó, pháo hoa đang bắn, tôi muốn nhìn Hứa Tranh ngắm pháo hoa.
+
+Từ Phàm nói muốn ngồi vòng quay mặt trời với cô ấy.
+
+Tôi cười.
+
+Thấy cậu ta mong muốn như vậy, tôi đành “miễn cưỡng” nhắc cho cậu ta nhớ về cái túi đeo chéo kia.
+
+Từ Phàm chạy đi.
+
+Cậu ta bảo Hứa Tranh chờ mình.
+
+Cũng được thôi, nếu cậu ta chạy nhanh hơn cả Usain Bolt. 
+
+Tôi nhìn Hứa Tranh.
+
+Tôi đợi cô ấy mời tôi.
+
+Nhưng cho đến khi cabin sắp đóng cửa, cô ấy vẫn không nói gì.
+
+Cô ấy nhìn sang Tiểu Bạch.
+
+Vậy nên, trước khi cô ấy kịp lên tiếng, tôi bước vào.
+
+Cô ấy không vui.
+
+Tôi cũng không vui.
+
+Chẳng lẽ không được ngồi với Từ Phàm lại đáng buồn đến vậy sao? 
+
+Cô ấy nhìn ra cửa kính.
+
+Tôi cũng nhìn ra cửa kính.
+
+Trên cửa kính là bóng dáng của cô ấy.
+
+Ngoài cửa kính là Từ Phàm đang chạy về.
+
+Trong cabin, nhạc Giáng Sinh vang lên.
+
+Hứa Tranh cười ngốc nghếch trước ô kính.
+
+Tôi sờ vào thỏi son dưỡng trong túi.
+
+Muốn tặng, nhưng lại không dám.
+
+… 
+
+Sau này, cô ấy không còn chơi với Từ Phàm nữa.
+
+Thấy cậu ta cũng chẳng buồn chào hỏi.
+
+Rất tốt.
+
+Kỳ thi đại học, điểm Vật lý của cô ấy tăng mạnh.
+
+Cô ấy gửi tin nhắn khoe tôi.
+
+79 điểm, có gì đáng để khoe chứ, đồ ngốc.
+
+Tối hôm đó, ở hành lang KTV, cô ấy hỏi tôi: “Nghe nói, cậu thích tôi?”
+
+Tôi căng thẳng.
+
+Không biết mình đã trả lời thế nào. 
+
+Thôi kệ.
+
+Tôi vẫn luôn diễn rất giỏi.
+
+Cô ấy hiểu mà.
+
+Dạo gần đây thời tiết thất thường, lúc nóng lúc lạnh, khiến cả lớp tôi bùng phát dịch cúm, trước sau tổng cộng có hơn chục người đổ bệnh.
+
+Mặc dù mỗi tối mẹ tôi đều cẩn thận nấu cho tôi một bát canh gừng, nhưng tôi vẫn không tránh khỏi số phận bị ốm.
+
+Đêm qua, tôi mơ thấy mình rơi xuống sông, suốt đêm run cầm cập. Sáng dậy, đầu óc quay cuồng, nhìn nhiệt kế thấy 38 độ. Tôi nuốt vội một viên thuốc cảm, đeo khẩu trang, kiên quyết lên đường đến trường.
+
+Không phải vì tôi ham học gì cho cam. Chỉ là, với một trận cảm cúm nhỏ bé này, “Sư thái diệt tuyệt” chắc chắn sẽ không duyệt đơn xin nghỉ của tôi.
+
+Do bị cảm, cổ họng tôi như bị nhét chì, giọng nói khàn đặc, khó nghe đến mức chính tôi cũng không chịu nổi. 
+
+Đi được nửa đường, tôi gặp Từ Viện Viện. Cô ấy đứng ở ngã tư, tay cầm một chiếc bánh kẹp nặng bằng nửa cái đầu của mình, vẫy tay gọi tôi:
+
+“Tranh tử!”
+
+Tôi cũng vẫy tay với cô ấy, cố hết sức đáp lại:
+
+“Viện Viện.”
+
+Từ Viện Viện nhíu mày, dáo dác nhìn xung quanh một lượt rồi nói:
+
+“Kỳ lạ thật, hình như vừa nghe thấy con vịt nào kêu vậy?”
+
+Sau đó, cô ấy nhìn tôi chằm chằm: “Sao cậu lại đeo khẩu trang thế, Tranh tử?”
+
+Tôi chớp mắt, cúi đầu, khàn giọng nói lại một lần nữa:
+
+“Là con vịt này sao?”
+
+Từ Viện Viện im lặng hai giây, sau đó bật cười lăn lộn.
+
+Tôi lạnh lùng liếc cô ấy một cái, sau đó ném cho cô ấy một chiếc khẩu trang.
+
+“Tớ đang là đối tượng nguy cơ cao, cậu giữ khoảng cách đi, tự bảo vệ bản thân.”
+
+“Được thôi.” Từ Viện Viện tặc lưỡi, có chút tiếc nuối: “Tớ còn định chia cho cậu một nửa cái bánh kẹp siêu cấp vô địch đại xa xỉ của tớ nữa. Có đủ topping luôn: quẩy, vỏ giòn, xà lách, xúc xích nướng, thậm chí có cả khô bò cay. Tớ đi cả một đoạn đường dài mà tiếc không nỡ ăn, chỉ để chờ chia cho cậu một nửa.”
+
+Tôi cảm động nhìn cô ấy: “Tạ ơn Hoàng ân! Nhưng tớ ăn sáng rồi, với lại uống thuốc rồi, không ăn cay được.”
+
+Từ Viện Viện gật đầu, bắt đầu gặm bánh. 
+
+Vào lớp, Trì Yến vẫn chưa đến. Tôi lấy khẩu trang phát cho mấy bạn ngồi xung quanh, đồng thời xin lỗi vì làm phiền.
+
+Mọi người đều hiểu chuyện, còn dặn tôi nghỉ ngơi cho tốt.
+
+Tôi mở sách ra, định lẩm nhẩm đọc. Nhưng vừa cất giọng, chính tôi cũng không chịu nổi, thôi thì đành câm miệng vậy.
+
+Hơn nữa, mỗi lần nói chuyện, họng tôi đau như bị cắt.
+
+Tôi ngồi xuống, nhắm mắt dưỡng thần một lúc, thì Trì Yến vừa kịp bước vào lớp khi chuông reo.
+
+Vừa ngồi xuống, cậu ấy đã liếc nhìn tôi, vừa lấy sách vở ra vừa hỏi:
+
+“Bị cảm à?”
+
+Tôi yếu ớt gật đầu, đưa cho cậu ấy một chiếc khẩu trang.
+
+Lúc này tôi mới nhận ra, mấy cái khẩu trang thông thường đều đã hết.
+
+Chỉ còn duy nhất một cái… màu hồng, in hình công chúa.
+
+Trì Yến nhìn chiếc khẩu trang, nhướng mày đầy ghét bỏ, cậu ấy bĩu môi:
+
+“Cái gu gì thế này, trẻ con quá, tôi không đeo đâu.”
+
+Tôi nghiến răng, trừng mắt nhìn cậu ấy.
+
+Công chúa thì sao chứ?! Tôi đeo vẫn ổn mà?! Cậu làm màu cái gì vậy?!
+
+Cố nén cơn đau họng, tôi bình tĩnh nói:
+
+“Cái cuối cùng rồi. Đeo thì đeo, không đeo thì thôi. Ốm thì đừng có trách tôi.”
+
+Nghe tôi nói xong, Trì Yến bỗng nhiên bật cười.
+
+Tôi biết cậu ấy đang cười giọng nói khàn đặc của tôi.
+
+Không chút biểu cảm, tôi giơ ngón giữa lên với cậu ấy rồi quay đi.
+
+Buổi sáng cũng không đến nỗi quá khó chịu, nhưng có lẽ do tác dụng của thuốc cảm, đầu óc tôi cứ mơ màng, buồn ngủ kinh khủng. 
+
+Khó khăn lắm mới chịu đựng đến giờ nghỉ trưa.
+
+Mọi hôm, tôi sẽ cùng Từ Viện Viện và mọi người đi ra bồn hoa tám chuyện. Nhưng hôm nay tôi quá mệt, ăn trưa xong liền định gục xuống bàn ngủ một giấc.
+
+Nhưng ánh nắng ban trưa quá chói, xuyên qua cửa sổ rọi xuống người tôi, nóng đến phát bực.
+
+Tôi định kéo rèm, nhưng xung quanh có rất nhiều bạn vẫn đang học, nên chỉ có thể cởi áo khoác, trùm lên đầu tạm che nắng.
+
+Vừa mới úp mặt xuống bàn, bỗng có ai đó đẩy nhẹ cánh tay tôi.
+
+Tôi ngẩng đầu lên, thấy Trì Yến đứng bên cạnh, nhìn xuống tôi với vẻ khinh bỉ.
+
+“Ngốc thật, dậy đi.”
+
+Đầu tôi còn choáng váng, phản ứng chậm nửa nhịp, cứ thế đứng lên theo bản năng.
+
+Trì Yến chỉ vào ghế của mình, rồi chỉ sang ghế của tôi:
+
+“Ngồi bên này.”
+
+Sau đó, cậu ấy thản nhiên ngồi xuống chỗ của tôi.
+
+Tôi đành ngơ ngác ngồi vào ghế của cậu ấy.
+
+Trì Yến cao hơn tôi rất nhiều, cậu ấy ngồi thẳng lưng, chắn hết ánh nắng chiếu xuống.
+
+Mặt bàn trước mắt lập tức rơi vào một khoảng bóng râm.
+
+Vừa ấm áp vừa dễ chịu, không còn nóng bức nữa.
+
+Hai mí mắt bắt đầu đánh nhau.
+
+Tôi không kìm được, thiếp đi lúc nào không hay.
+
+Trong cơn mơ màng, tôi cảm thấy ai đó đặt tay lên trán tôi.
+
+Lát sau, trán tôi trở nên mát lạnh.
+
+Tôi cố gắng mở mắt, lờ mờ nhìn thấy Trì Yến cầm cốc nước của tôi, đi ra ngoài.
+
+Làm gì vậy? Định hạ độc tôi sao? Muốn nhân lúc tôi bệnh mà lấy mạng tôi à?
+
+Tôi giơ tay lên định ngăn cậu ấy lại, nhưng cậu ấy đã đi mất.
+
+Tôi sờ trán, cảm giác mát mát, là một miếng dán hạ sốt.
+
+Ai dán cho tôi? 
+
+Tôi nhìn sang phía Từ Viện Viện, thấy cô ấy ngủ say như chết.
+
+Nhớ lại bàn tay lạnh lạnh khi nãy, trong lòng tôi mơ hồ có suy đoán.
+
+Không lẽ… là Trì Yến?
+
+Tôi còn chưa nghĩ xong, Trì Yến đã quay lại, trên tay cầm theo cốc nước nóng.
+
+Ngoài ra, cậu ấy còn đưa cho tôi một hộp thạch trái cây cỡ lớn, vị nho nha đam.
+
+Vừa lạnh vừa mát, chắc chắn mới được lấy ra từ tủ lạnh.
+
+Tên này… Nhân lúc đi lấy nước còn tranh thủ chạy sang siêu thị mua đồ nữa à?
+
+Tôi quay sang nhìn cậu ấy.
+
+Trì Yến ngửa cổ uống một hơi hết chai Coca, tôi chần chừ hỏi:
+
+“Cậu dán miếng hạ sốt cho tôi à? …Cảm ơn.”
+
+“Đừng nói nữa, Vịt Đần.” Trì Yến hất cằm, cười lộ tám chiếc răng trắng sáng.
+
+“Tôi chỉ sợ cậu chết trên chỗ ngồi của tôi, ảnh hưởng đến phong thủy, khiến tôi làm bài không nổi.”
+
+Tôi: “…”
+
+Tôi giận dữ bóc hộp thạch, cắn mạnh một miếng.
+
+Trì Yến luôn có cách làm tôi tức điên ngay cả trong những lúc tôi muốn cảm ơn cậu ấy nhất.
+
+Cuối cùng, Trì Yến vẫn không chịu đeo chiếc khẩu trang công chúa màu hồng mà tôi đưa.
+
+Nhưng tôi cũng không tìm thấy nó đâu cả, không biết cậu ấy nhét vào chỗ nào.
+
+Ban đầu tôi còn định giữ lại, dù sao tôi cũng cực kỳ thích cái khẩu trang đó. Nó là quà dì tôi mua từ Disneyland Thượng Hải, vốn dĩ chỉ còn hai cái.
+
+Tối hôm đó, tôi vẫn còn tiếc nuối một chút cho chiếc khẩu trang đáng yêu của mình, rồi mới đi ngủ.
+
+Tắm nước nóng, uống thuốc, ngủ một giấc, cảm giác bệnh cũng đỡ hơn nhiều.
+
+Thế nhưng… 
+
+Sáng hôm sau, khi nhìn thấy Trì Yến đeo khẩu trang, mặt mũi phờ phạc vì cảm lạnh, tôi bỗng cảm thấy… quả nhiên là gió đổi chiều.
+
+“Hôm qua bị nhiễm lạnh, giờ cảm rồi.” Cậu ấy khàn giọng nói.
+
+“Thôi thôi, khỏi cần nói, Goofy ạ, tôi hiểu rồi.” Tôi tàn nhẫn chế giễu.
+
+“Đi lấy nước cho tôi.” Trì Yến chỉ vào cốc nước, mặt lạnh tanh.
+
+Tôi giơ ngón giữa với cậu ta, nhưng vẫn ngoan ngoãn cầm cốc đi rót nước.
+
+Thôi được rồi, xem như gió đổi chiều, nhân quả tuần hoàn vậy.`
 
 // Gộp thành 1 dòng, loại bỏ xuống dòng, dư khoảng trắng
 const text = inputText.replace(/\s*\n\s*/g, ' ').replace(/\s+/g, ' ').trim()
