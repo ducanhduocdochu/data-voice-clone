@@ -1,0 +1,23 @@
+{
+  "name": "format-voice",
+  "version": "1.0.0",
+  "main": "autoApi.js",
+  "scripts": {
+    "test": "echo \"Error: no test specified\" && exit 1"
+  },
+  "repository": {
+    "type": "git",
+    "url": "git+https://github.com/ducanhduocdochu/data-voice-clone.git"
+  },
+  "keywords": [],
+  "author": "",
+  "license": "ISC",
+  "bugs": {
+    "url": "https://github.com/ducanhduocdochu/data-voice-clone/issues"
+  },
+  "homepage": "https://github.com/ducanhduocdochu/data-voice-clone#readme",
+  "description": "",
+  "dependencies": {
+    "axios": "^1.10.0"
+  }
+}
